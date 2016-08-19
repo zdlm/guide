@@ -1,6 +1,8 @@
 ---
 title: 丹麦的圣诞节是什么样的
 ---
+![圣诞节照片](https://www.howtoliveindenmark.com/wp-content/uploads/2015/03/santa_girl_flag2.jpg)
+
 ## 圣诞节小饼干
 如果你已经在丹麦，你可能已经见过圣诞包装纸，小精灵帽子和用姜做成的圣诞节饼干。许多丹麦商店也推出棕色的圣诞节饼干，就像MM豆一样。他们称他们是Pepper nuts。你可以试吃这种好吃的饼干，Pepper nuts预示着丹麦两个月的圣诞节开始了。
 
