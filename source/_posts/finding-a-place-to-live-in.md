@@ -1,5 +1,7 @@
 ---
-title: 丹麦“房”事，如何租房？
+title: 在哥本哈根如何租房？
+tags:
+  - 日常生活
 ---
 ![圣诞节照片](https://www.howtoliveindenmark.com/wp-content/uploads/2013/09/final_thatcher_.png)
 

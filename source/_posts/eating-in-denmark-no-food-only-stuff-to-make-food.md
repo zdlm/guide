@@ -1,5 +1,7 @@
 ---
 title: 舌尖上的丹麦，没有食物，只有食材
+tags:
+  - 文化习俗
 ---
 ![圣诞节照片](https://www.howtoliveindenmark.com/wp-content/uploads/2013/08/final_smorrebrod_danish_food.png)
 

@@ -1,5 +1,7 @@
 ---
 title: 丹麦的夏天
+tags:
+  - 文化习俗
 ---
 ![夏天照片](https://www.howtoliveindenmark.com/wp-content/uploads/2015/01/final_summer.jpg)
 

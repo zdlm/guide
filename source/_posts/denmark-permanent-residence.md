@@ -1,5 +1,7 @@
 ---
 title: 丹麦永居的申请条件
+tags:
+  - 法律法规
 ---
 ![永居照片](https://www.workingabroad.net/headerimages/120.jpg)
 

@@ -1,5 +1,7 @@
 ---
 title: 丹麦人和自行车，两个轮子上的维京人
+tags:
+  - 日常生活
 ---
 ![圣诞节照片](https://www.howtoliveindenmark.com/wp-content/uploads/2013/09/final_danes_and_biking.png)
 

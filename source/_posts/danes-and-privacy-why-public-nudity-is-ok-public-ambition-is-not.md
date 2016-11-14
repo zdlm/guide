@@ -1,5 +1,7 @@
 ---
 title: 为什么你的丹麦邻居不主动搭理你
+tags:
+  - 文化习俗
 ---
 ![圣诞节照片](https://www.howtoliveindenmark.com/wp-content/uploads/2013/08/final_private_amalienborg.png)
 

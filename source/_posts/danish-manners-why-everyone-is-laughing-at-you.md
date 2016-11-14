@@ -1,5 +1,7 @@
 ---
 title: 礼貌的丹麦人，为何大家都向你微笑
+tags:
+  - 文化习俗
 ---
 ![丹麦文化](https://www.howtoliveindenmark.com/wp-content/uploads/2013/08/my_life_slider.jpg)
 

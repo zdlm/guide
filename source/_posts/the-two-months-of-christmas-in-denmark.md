@@ -1,5 +1,7 @@
 ---
 title: 丹麦的圣诞节是什么样的
+tags:
+  - 文化习俗
 ---
 ![圣诞节照片](https://www.howtoliveindenmark.com/wp-content/uploads/2015/03/santa_girl_flag2.jpg)
 
