@@ -89,7 +89,7 @@ css_minifier:
 
 js_minifier:
   enable: false
-  mangle: true
+  mangle: false
   output:
   compress:
   exclude: 
