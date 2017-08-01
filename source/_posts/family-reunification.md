@@ -3,7 +3,6 @@ title: 丹麦陪工签证申请条件
 tags:
   - 法律法规
 ---
-![照片](https://www.howtoliveindenmark.com/wp-content/uploads/2015/01/final_bikes_2.jpg)
 
 如果你持有工作签证，你可以带上你的家人来丹麦生活。通常是你的配偶和18岁以下的孩子。特殊情况下也可以携带你满18岁的孩子和父母过来生活。你随行的家属不用额外申请工作或学习签证，只要申请[陪工签证](https://www.nyidanmark.dk/en-us/coming_to_dk/work/accompanying-family-members.htm)即可
 

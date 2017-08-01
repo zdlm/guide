@@ -3,7 +3,6 @@ title: 丹麦的工作情况
 tags:
   - 日常生活
 ---
-![工作照片](https://www.howtoliveindenmark.com/wp-content/uploads/2015/01/final_bricklayer.jpg)
 
 几年前，有一个很出名的案例，因为太多的机师在最热门的七月假期期间请假，导致SAS不得不取消大量航班。
 

@@ -3,7 +3,6 @@ title: 礼貌的丹麦人，为何大家都向你微笑
 tags:
   - 文化习俗
 ---
-![丹麦文化](https://www.howtoliveindenmark.com/wp-content/uploads/2013/08/my_life_slider.jpg)
 
 丹麦人希望他们生活在一个轻松，愉快的社会，不希望一些繁文缛节。这就意味着如果你不遵守一些丹麦人的习俗，你会被孤立，不被认同。
 

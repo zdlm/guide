@@ -1,10 +1,8 @@
 ---
 title: 哥本哈根3岁以下孩子好玩的地方
 tags:
-  - 日常生活
+  - 儿童娱乐
 ---
-![小孩儿](https://www.howtoliveindenmark.com/wp-content/uploads/2016/10/Networking-1080x718.jpg)
-
 
 ## 游戏小组
 [Emdrup kirke](http://www.emdrupkirke.dk/page/3597/legestue)

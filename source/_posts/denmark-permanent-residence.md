@@ -3,7 +3,6 @@ title: 丹麦永居的申请条件
 tags:
   - 法律法规
 ---
-![永居照片](https://www.workingabroad.net/headerimages/120.jpg)
 
 丹麦最新永居申请条件（[2015年12月10日起](https://www.nyidanmark.dk/en-us/coming_to_dk/permanent-residence-permit/permanent-residence-permit.htm)）
 

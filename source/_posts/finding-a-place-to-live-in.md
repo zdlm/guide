@@ -3,7 +3,6 @@ title: 在哥本哈根如何租房？
 tags:
   - 日常生活
 ---
-![圣诞节照片](https://www.howtoliveindenmark.com/wp-content/uploads/2013/09/final_thatcher_.png)
 
 刚到丹麦，你首先要找到一个容身之处，或买或租。本文主要讨论如何租到房子。
 

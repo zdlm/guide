@@ -3,7 +3,6 @@ title: 为什么你的丹麦邻居不主动搭理你
 tags:
   - 文化习俗
 ---
-![圣诞节照片](https://www.howtoliveindenmark.com/wp-content/uploads/2013/08/final_private_amalienborg.png)
 
 ## 丹麦的隐私
 隐私这个词在丹麦很常用。你周围的丹麦人，你的同事，邻居，地铁上坐在你旁边的人，都不会干涉你的隐私。因此他们不会主动搭理你。

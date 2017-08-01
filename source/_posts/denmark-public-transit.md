@@ -3,7 +3,6 @@ title: 丹麦的公共交通
 tags:
   - 日常生活
 ---
-![交通照片](https://www.howtoliveindenmark.com/wp-content/uploads/2013/10/crime-and-punishment_final.jpg)
 
 ## 公共交通
 丹麦公共交通有公交车,S-train(相当于国内的有轨电车)和Metro。S-train有7条线,基本覆盖哥本哈根大部分区域,每趟车有几节车厢可以带自行车并且不用给自行车买票。S-train是有人驾驶的,靠近驾 驶员的那节车厢不允许讲话和打电话,大家要注意。S-train有自行车标志的车厢可以免费停自行车。Metro只有两条,M2到机场,只有非上班点可以带自行车上地铁, 但是要额外给自行车买票。初到哥哈您可以从机场在机器上买票,乘车到市区。

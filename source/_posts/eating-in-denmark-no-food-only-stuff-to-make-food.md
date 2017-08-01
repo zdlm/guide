@@ -3,7 +3,6 @@ title: 舌尖上的丹麦，没有食物，只有食材
 tags:
   - 文化习俗
 ---
-![圣诞节照片](https://www.howtoliveindenmark.com/wp-content/uploads/2013/08/final_smorrebrod_danish_food.png)
 
 ## 诺玛餐厅
 一家在哥本哈根叫做诺玛(Noma)的餐厅，年年被国际老饕们命名为世界最佳餐馆。这跟丹麦其他餐馆形成鲜明对比。要么是最好的，要么完全没有美食，有的只是食材。

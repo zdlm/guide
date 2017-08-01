@@ -3,7 +3,6 @@ title: 丹麦的超市
 tags:
   - 日常生活
 ---
-![超市照片](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b4/Supermarket_z_flagami_%28ubt%29.JPG/1920px-Supermarket_z_flagami_%28ubt%29.JPG)
 
 ## 丹麦超市
 在丹麦超市有 Netto、føtex、REMA1000、fakta、Lidl、 Irma 和 Meny(SuperBest),Bilka。 相对而言,Irma 和 Meny 价格较贵, Netto 较为便宜。但不同超市都有自己相对便宜的东西,Netto 东西 不是很全,个人比较喜欢 føtex,全还没那么贵。周末和节日前很多 超市都会有打折的东西,尤其 Meny 打折很厉害,经常去走走看看还 是能碰到实惠的东西。有兴趣的朋友可以 Google 上搜索看一下每家 超市。

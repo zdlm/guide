@@ -3,7 +3,6 @@ title: 如何在丹麦办理各种卡
 tags:
   - 日常生活
 ---
-![医疗照片](https://www.howtoliveindenmark.com/wp-content/uploads/2016/02/job-interview.jpg)
 
 ## CPR Number和医疗卡(黄卡)
 抵达哥哈后您要尽量在一周内去办理医疗卡和 CPR Number。
