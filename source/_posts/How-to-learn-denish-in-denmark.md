@@ -34,6 +34,9 @@ tags:
 ### Danish to go
 Danish to go 是目前我在的丹麦语学校(studieskolen)提供的一套自学丹麦语的材料，非常不错。但可能需要studieskolen注册才能使用。[详细信息](http://www.studieskolen.dk/en/Dansk-for-udlaendinge/courses/online)
 
+### 我丹麦语口语老师的网站
+他是我最好的丹麦语口语老师。[basby.dk](http://basby.dk/)
+
 ## 丹麦语考试
 每个学校自己负责Module test。但最终考试目前是一年两次，在五月或者六月和十一月或者十二月。必须要在考试前10周注册才可以。考试包括口语和笔试两部分，包括阅读理解，笔试，听力和口语四个方面。通过了相应考试就可以申请学校，永居或者国籍等。
 
